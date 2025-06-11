@@ -5,16 +5,16 @@
 
 ---
 
-## 🥺 Hey Baby
+## 🥺 Hey Cutie Patootie
 
 I made this just for you — a little place on the internet that’s all yours.  
 Just wanted to remind you how much you mean to me ❤️
 
 ---
 
-## 🌸 5 Reasons Why I Love You
+## 🌸 Some Reasons Why I Love You
 
-1. Your laugh — it’s literal serotonin.
+1. Your humour, I always feel like I'm back in highschool again. 
 2. The way you talk to me when I’m tired 🫶
 3. How you never fail to check in on me.
 4. Your random voice notes that make my day.
@@ -36,23 +36,20 @@ Just wanted to remind you how much you mean to me ❤️
 
 > _My love,_  
 >
-> I don’t know how I got so lucky, but every single day with you feels like the best chapter of my life.  
-> Whether we’re together or apart, you’re the first thought in my head and the softest feeling in my heart.  
->
-> Love you more than all the stars 🌌
+> This isn't much but just know that you mean the world to me, I'm so grateful I met you. 
+> Love you to the moon and back 🌌
 
 ---
 
-## 🎵 Our Song (click to listen)
+## 🎵 One of our iconic songs hehe (click to listen)
 
-[![song](https://img.youtube.com/vi/VIDEO_ID/0.jpg)](https://www.youtube.com/watch?v=VIDEO_ID)
-
+[![song]([https://img.youtube.com/vi/VIDEO_ID/0.jpg)](https://www.youtube.com/watch?v=VIDEO_ID](https://www.youtube.com/watch?v=Iw2IHDZx_UI&ab_channel=estate.))
 ---
 
-## 👩‍❤️‍👨 Forever and Always
+## 👩‍❤️‍👨 Mmuahhh Mmuaahhhh MMUUUAAAAHHHHHHHHHH
 
 > You + Me = ☁️✨🫶  
 >  
-> _– Made with love by_ [YourName]
+> _– Made with love by_ [Your favourite Pani Puri]
 
 
