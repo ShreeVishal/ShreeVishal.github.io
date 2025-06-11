@@ -1,7 +1,7 @@
 # Hey cutie :)
 # 💖 For My One and Only
 
-![us](IMG_8350.HEIC)
+![us](IMG_8042.HEIC)
 
 ---
 
@@ -22,13 +22,13 @@ Just wanted to remind you how much you mean to me ❤️
 
 ---
 
-## 📸 Some Sweet Memories
+## 📸 Kenangan kenangan manis 
 
-> _“Remember this?”_  
-![Memory](https://your-image-url.com/memory.jpg)
+> _“We look so good together weyh”_  
+![Memory](IMG_8350.HEIC)
 
-> _“This day lives rent free in my heart 💭”_  
-![Memory2](https://your-image-url.com/memory2.jpg)
+> _“Are we cute or what”_  
+![Memory2](IMG_0800.HEIC)
 
 ---
 
@@ -36,7 +36,7 @@ Just wanted to remind you how much you mean to me ❤️
 
 > _My love,_  
 >
-> This isn't much but just know that you mean the world to me, I'm so grateful I met you. 
+> This isn't much but just know that you mean the world to me, I'm so grateful I met you. Best believe this is something I'll be updating now and then, consider this MVP 1. There will be more features in upcoming deployments hehehe. 
 > Love you to the moon and back 🌌
 
 ---
