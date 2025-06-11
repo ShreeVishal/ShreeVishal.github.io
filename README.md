@@ -1,7 +1,7 @@
 # Hey cutie :)
 # 💖 For My One and Only
 
-![us](https://your-image-url.com/photo.jpg)
+![us](IMG_8350.HEIC)
 
 ---
 
