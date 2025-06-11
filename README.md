@@ -41,11 +41,6 @@ Just wanted to remind you how much you mean to me ❤️
 
 ---
 
-## 🎵 One of our iconic songs hehe (click to listen)
-
-[![song]([https://img.youtube.com/vi/VIDEO_ID/0.jpg)](https://www.youtube.com/watch?v=VIDEO_ID](https://www.youtube.com/watch?v=Iw2IHDZx_UI&ab_channel=estate.))
----
-
 ## 👩‍❤️‍👨 Mmuahhh Mmuaahhhh MMUUUAAAAHHHHHHHHHH
 
 > You + Me = ☁️✨🫶  
